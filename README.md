@@ -5,3 +5,6 @@ So Im bad at explain stuff ops, but Im shy af as said in straw, I overthinking q
 If u want to bmf, go for it! Dont just add me randomly, come talk to me, afterwards Im pretty fine w being friends, i love making friends ! ^_^
 Ok now, some more personal thing going on w me, im not doing good mentally, so pls intwcare too.
 U can vent to me btw! I may not be the best at answering, but I'm good at listening, i dont mind people venting to me at all! Im happy to maybe help.
+
+i'll maybe change this idk
+final note.. c+h w me pls..
